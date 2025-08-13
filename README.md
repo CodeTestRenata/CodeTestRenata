@@ -44,7 +44,7 @@ QA & Automation enthusiast ⚡ | Turning bugs into happy features
 ---
 
 ## 📫 Contact
-- 📧 Email: `youremail@example.com`  
+- 📧 Email: `rehsousa.24@gmail.com`  
 - 🔗 LinkedIn: [Renata Sousa](https://www.linkedin.com/in/renatass/)  
 
 ---
